@@ -1,0 +1,5 @@
+-  Hi, I’m @Terskk
+- I’m interested in pentest
+- My teacher is @Finistro 
+- My instructor is @Lucas47
+- I'm destiny apprentice
